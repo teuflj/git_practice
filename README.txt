@@ -1,1 +1,1 @@
-Hello Cameron, you big slut
+Hello Cameron, you magnificent person!
